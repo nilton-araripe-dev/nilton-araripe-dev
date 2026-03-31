@@ -40,5 +40,5 @@ Conseguir minha primeira oportunidade como desenvolvedor e evoluir constantement
 
 ## 📫 Contato
 
-📧 SeuEmailAqui@email.com  
-🔗 LinkedIn (em breve)
+📧 niltongoncalves571@gmail.com
+🔗 www.linkedin.com/in/jose-nilton-araripe
